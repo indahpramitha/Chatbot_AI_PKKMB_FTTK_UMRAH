@@ -1,1 +1,1 @@
-# Chatbot_AI_PKKMB_FTTK_UMRAH
+# Chatbot AI Pengenalan Kehidupan Kampus Mahasiswa Baru Fakultas Teknik dan Teknologi Kemaritiman UMRAH
